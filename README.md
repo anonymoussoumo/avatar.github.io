@@ -1,2 +1,1 @@
-# avatar.github.io
-iy,s a wesite of avatar i made useing css and html with code. Do youlike it ?
+Hi all this is website on Avatar promotion . This is an amazing movie and i tried to make this only for fun perpose . Nocopyright and hate expected . Thank you .
